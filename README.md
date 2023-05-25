@@ -1,0 +1,2 @@
+# MagdalineNjeri
+My Personal Repository
